@@ -1,6 +1,5 @@
 - 👋 Hi I'm vidadala Sriram 
 - 👀 I’m interested in programming and design
-- 🌱 I’m currently learning c and HTML languages
 - 💞️ I’m looking to improve my skills and learning logics
 - 📫 Reach me Instagram id sriram_vidadala Facebook vidadala Sriram
             Thank you for visiting♥️
